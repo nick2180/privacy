@@ -29,5 +29,3 @@ NOUS CONTACTER
 Pour en savoir plus sur nos pratiques de confidentialité, si vous avez des questions ou si vous souhaitez déposer une réclamation, veuillez nous contacter
 par e-mail à application.cil@cyber-forma-consult.fr, ou par courrier à l'adresse suivante :
 5 rue Alioune Blondin Beye, QUETIGNY, Côte d'Or, 21800, France
-Propulsé par Shopify
-www.shopify.fr
